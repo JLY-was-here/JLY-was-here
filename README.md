@@ -1,5 +1,5 @@
 ```
-I am based and I know some things about IT.
+professional amatuer at a lot of things
 
 Colossians 3:17
 ```
